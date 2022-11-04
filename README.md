@@ -12,8 +12,8 @@
 
 ### Contact Info:
 
-Phone: (540)-339-2369
-Address: 1234 Lasso Ln.
-Email: tythebob3@gmail.com, cetoppins1@gmail.com
+- Phone: (540)-339-2369
+- Address: 1234 Lasso Ln.
+- Email: tythebob3@gmail.com, cetoppins1@gmail.com
 
 ## We hope to see you there!
